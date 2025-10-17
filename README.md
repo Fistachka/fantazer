@@ -55,3 +55,8 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/766429d5-318c-4e05-a012-b9d58e909f8c =200x200)
 stolbitsa.com/fistachka/ohrana<br><br>
 
+![з1](https://github.com/user-attachments/assets/43877242-ce51-44ca-8582-d206088bd0ef)
+![з2](https://github.com/user-attachments/assets/f716170f-0b77-47f4-916a-1238a653e4f9)
+
+
+
